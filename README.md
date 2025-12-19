@@ -133,6 +133,6 @@ Changes will be reflected on this page with an updated “Last updated” date.
 
 If you have any questions or concerns about this Privacy Policy, please contact:
 
-📧 Email: your-email@example.com
+📧 Email: mnm19101993@gmail.com
 
 📱 App Name: rkives
